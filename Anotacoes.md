@@ -1,1 +1,2 @@
-Algumas anotações serão colocadas aqui
+Algumas anotações serão colocadas aqui.
+
